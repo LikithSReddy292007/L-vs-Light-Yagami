@@ -1,1 +1,1 @@
-Get ur git ss
+Get your git output screenshots
